@@ -1,2 +1,0 @@
-# bbqrebs.github.io
-Portfolio
